@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Securing you digitally
 - 📫 How to reach me Linkedin
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: My chess rating is 1700 and I am a Martial Artist!
+- ⚡ Fun fact: My chess rating is 1700 and I am a Pinterest Influencer
 
 <!---
 sw4rn4v4/sw4rn4v4 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
